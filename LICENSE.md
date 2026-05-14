@@ -1,4 +1,4 @@
-#  
+#  Experience 3008 like never before with no-ban 3008 Script, the #1 Script. Includes anti-ban and one-hit kill for unbeatable performance.
 
 
 
